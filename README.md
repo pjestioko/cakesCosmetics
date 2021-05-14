@@ -1,0 +1,1 @@
+My cousin asked me to take a look at her ecommerce website for her cosmetics business. After looking at her original website, I decided this was the perfect opportunity to create a better version one for her!
